@@ -1,4 +1,4 @@
-# 
+# Procreate for macOS new Panel: typography tools & auto-retouch is the best Procreate for macOS panel, featuring typography tools and auto-retouch. Safe, efficient, and optimized
 
 
 
